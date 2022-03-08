@@ -9,7 +9,7 @@
 - Ho Khanh Vu
 
 ## Members
-
+- Xuân Hậu
 - Thái Minh
 - Tuấn Ninh
 - Đặng Trang
